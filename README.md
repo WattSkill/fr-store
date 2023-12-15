@@ -1,1 +1,1 @@
-I made this for fr abit ago not the best but you can use it for shit
+Didnt really finish it fr wanted it at the time and people be selling it to buy vapes so ¯\_(ツ)_/¯
